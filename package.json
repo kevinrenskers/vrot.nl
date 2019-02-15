@@ -1,0 +1,19 @@
+{
+  "name": "vrot.nl",
+  "version": "1.0.0",
+  "description": "The source of vrot.nl",
+  "main": "index.js",
+  "scripts": {
+    "deploy": "surge deploy"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/kevinrenskers/vrot.nl.git"
+  },
+  "author": "",
+  "license": "MIT",
+  "homepage": "https://github.com/kevinrenskers/vrot.nl#readme",
+  "devDependencies": {
+    "surge": "^0.20.1"
+  }
+}
