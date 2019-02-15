@@ -36,7 +36,7 @@ Jullie zijn naar de Lionshield Coster gegaan om te melden dat jullie verloren ki
 
 Het standbeeldje is verkocht en Shardon heeft een studded leather armor besteld bij de smid, die over een weekje klaar zal zijn.
 
-Na een short rest te hebben gedaan in de Inn, zijn jullie naar de ruïne van het landhuis gegaan, waar de Redbrand zouden moeten zitten. Na wat gezoek vond Tippletoe de ingang naar de kelder. In deze kelder hebben jullie meerdere kleine gevechten gehad, waaronder met een stelletje skeletten, en hebben 3 mensen bevrijd die gevangen zaten. De moeder nodigt jullie uit om bij haar boerderij te komen voor gratis onderdak en een beloning. Jullie helpen de 3 mensen langs de val (nadat Tippletoe faalt om de val onschadelijk te maken en er zelf in valt maar zich nog net weet vast te houden aan de rand), en ze zeggen zelf de weg naar huis wel te weten te vinden.
+Na een short rest te hebben gedaan in de Inn, zijn jullie naar de ruïne van het landhuis gegaan, waar de Redbrands zouden moeten zitten. Na wat gezoek vond Tippletoe de ingang naar de kelder. In deze kelder hebben jullie meerdere kleine gevechten gehad, waaronder met een stelletje skeletten, en hebben 3 mensen bevrijd die gevangen zaten. De moeder nodigt jullie uit om bij haar boerderij te komen voor gratis onderdak en een beloning. Jullie helpen de 3 mensen langs de val (nadat Tippletoe faalt om de val onschadelijk te maken en er zelf in valt maar zich nog net weet vast te houden aan de rand), en ze zeggen zelf de weg naar huis wel te weten te vinden.
 
 Na veel gezoek vinden jullie een geheime deur naar een ander onderdeel van de kelder.
 
