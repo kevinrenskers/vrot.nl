@@ -6,13 +6,13 @@
 Jullie zijn in Neverwinter door jullie Dwarven vriend Gundren Rockseeker ingehuurd om een kar met mijn-uitrusting naar Phandalin te brengen, naar Barthen’s Provisions. Daar zullen jullie 12 goud per persoon krijgen. Gundren had haast en is met zijn bodyguard Sildar Hallwinter eerder vertrokken, jullie volgen later in de middag met de kar. Jullie hebben de nacht op de High Road doorgebracht. 
 
 ### 2
-Onderweg op de Triboar Trail is het pad versperd door twee dode paarden, en 4 Goblins die in een ambush zaten. Gelukkig zien jullie twee van de Goblins al zitten, dus erg verast zijn jullie niet. De Goblins zijn gedood, de paarden onderzocht (die waren van Gundren en Sildar), en een lege kaart-koker gevonden.
+Onderweg op de Triboar Trail is het pad versperd door twee dode paarden, en 4 Goblins die in een ambush zitten. Gelukkig zien jullie twee van de Goblins al zitten, dus erg verast zijn jullie niet. De Goblins worden gedood, de paarden onderzocht (die waren van Gundren en Sildar), en een lege kaart-koker gevonden.
 
-Jullie vinden daarna een trail die vaak gebruikt werd door meerdere Goblins, met een sleepspoor van twee humanoids. Jullie volgen dit spoor, ontwijken 1 val, maar valt Thervan daarna wel in een diepe kuil.
+Jullie vinden daarna een trail die vaak gebruikt werd door meerdere Goblins, met een sleepspoor van twee humanoids. Jullie volgen dit spoor, ontwijken 1 val, maar daarna valt Thervan wel in een diepe kuil.
 
-De trail komt bij een grot uit, waar jullie twee nietsvermoedende en niet-oplettende wachters doden. Een short rest later gaan jullie de grot in. De eerste kamer heeft 3 geketende wolven, het lijk van een Goblin wordt naar binnen gegooid waarna de wolven stil zijn.
+De trail komt bij een grot uit, waar jullie twee nietsvermoedende en niet-oplettende wachters doden. Een short rest later gaan jullie de grot in. De eerste kamer heeft 3 geketende en luide wolven; het lijk van een Goblin wordt naar binnen gegooid waarna de wolven stil zijn.
 
-Daarna proberen jullie een steil pad te beklimmen, maar door de hoeveelheid mensen op de helling komen de kiezelstenen los en vallen jullie weer naar beneden. Weer omhoog geklommen, en om de hoek staan zes Goblins. Dat ging niet zo heel erg lekker, dus met de staart tussen de benen rennen jullie weg, en vlak buiten de grot wordt een long rest gedaan.
+Daarna proberen jullie een steil pad te beklimmen, maar door de hoeveelheid mensen op de helling komen de kiezelstenen los en vallen jullie weer naar beneden. Weer omhoog geklommen, en om de hoek staan zes Goblins. Dat gaat niet zo heel erg lekker, dus met de staart tussen de benen rennen jullie weg, en vlak buiten de grot wordt een long rest gedaan.
 
 Helaas voor jullie worden jullie gevonden door een patrouille van twee Goblins, die jullie overmeesteren, vastbinden, en naar hun leider Yeemik brengen. Zijn deal: vermoord zijn baas Klarg, breng zijn hoofd, en jullie mogen de grot levend verlaten inclusief Sildar die daar ook zit (zwaargewond). Sildar roept nog dat Yeemik niet te vertrouwen is, maar jullie hebben geen keus en nemen de deal aan. Morgen zullen jullie aan deze klus beginnen en maken eerst de long rest af.
 
