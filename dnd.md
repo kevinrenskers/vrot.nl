@@ -38,7 +38,11 @@ Het standbeeldje is verkocht en Shardon heeft een studded leather armor besteld 
 
 Na een short rest te hebben gedaan in de Inn, zijn jullie naar de ruïne van het landhuis gegaan, waar de Redbrands zouden moeten zitten. Na wat gezoek vond Tippletoe de ingang naar de kelder. In deze kelder hebben jullie meerdere kleine gevechten gehad, waaronder met een stelletje skeletten, en hebben 3 mensen bevrijd die gevangen zaten. De moeder nodigt jullie uit om bij haar boerderij te komen voor gratis onderdak en een beloning. Jullie helpen de 3 mensen langs de val (nadat Tippletoe faalt om de val onschadelijk te maken en er zelf in valt maar zich nog net weet vast te houden aan de rand), en ze zeggen zelf de weg naar huis wel te weten te vinden.
 
-Na veel gezoek vinden jullie een geheime deur naar een ander onderdeel van de kelder.
+Na veel gezoek vinden jullie een geheime deur naar een ander onderdeel van de kelder. Hier komen jullie in een grote natuurlijke grot terecht met daarin een grote spleet in de grond, met daaroverheen twee bruggetjes. Op een gegeven moment worden jullie telepatisch aangesproken door een Nothic, die zegt honger te hebben en eten wilt hebben. Als jullie de grot willen verlaten aan de andere kant, laat de Nothic zich zien, die prompt wordt aangevallen door jullie. Onder een van de bruggen ligt een kist met daarin een magisch zwaard.
+
+Jullie bevrijden een arme goblin genaamd Droop die gepest wordt door 3 bugbears. De eerste 2 bugbears gaan snel dood, de 3e geeft zich over, en Droop biedt prompt zijn hulp aan. Jullie nemen hem mee.
+
+Er wordt nog een wizard laboratorium gevonden waar iemand potions aan het brouwen was, en in de slaapkamer staat een geheime deur op een kier. Blijkbaar is de baas van de Redbrands ontsnapt! Jullie vinden nog wel een brief geadresseerd aan Iarno Albrek, ondertekent met het logo van een zwarte spin.
 
 ### 31
 Midsummer
