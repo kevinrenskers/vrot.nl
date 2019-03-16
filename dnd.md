@@ -25,7 +25,7 @@ Met Sildar de grot verlaten, die een beloning van 50 GP belooft voor een voorspo
 
 Later op de avond komen jullie veilig in Phandalin aan, brengen de kar naar Barthen's Provisions en worden betaald. Daarna de inn in waar jullie meerdere tips krijgen over wat er zo al te doen is in de buurt. Jullie horen ook over de Redbrands, een groep thugs die het dorpje terroriseren.
 
-### **4**
+### 4
 De volgende dag zijn jullie naar de Townmaster's Hall gegaan waar jullie Sildar weer ontmoeten. Hij betaalt jullie voor de escorte, en de townmaster belooft jullie geld om een groepje Orcs in het oosten uit de weg te ruimen. Sildar belooft een dikke beloning voor het vinden van Cragmaw Castle, het uit de weg ruimen van de Goblin tribe daar, plus de laatste Goblins in die eerste grot.
 
 Weer buiten worden jullie aangevallen door een groepje Redbrands, maar die delven al snel het onderspit. Een groepje mensen juichen jullie daarna toe, en zeggen dat ze hopen dat jullie dan ook de rest van die bende te grazen kunnen nemen. Hun hide-out is de oude ruïne van een landhuis, in het dorp. Het groepje Redbrands had nog een beetje geld bij zich dat snel wordt verdeelt, en jullie nemen ook de 4 rode cloaks mee. 
@@ -53,7 +53,7 @@ De gevonden loot wordt verkocht bij de Lionshield Coster, en jullie vertrekken n
 
 De kratten in de grot worden op de kar geladen, en jullie brengen de nacht door in de grot, met Droop.
 
-### 6
+### **6**
 Op de weg terug naar Phandalin worden jullie aangevallen door twee Kobolds die snel worden overmeesterd. Jullie vinden een Bag of Holding op het lichaam van een van de Kobolds.
 
 Terug in Phandalin brengen jullie de kar terug naar de Lionshield Coster en worden betaald.
