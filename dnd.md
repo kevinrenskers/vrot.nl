@@ -46,5 +46,20 @@ Jullie bevrijden een arme goblin genaamd Droop die gepest wordt door 3 bugbears.
 
 Er wordt nog een wizard laboratorium gevonden waar iemand potions aan het brouwen was, en in de slaapkamer staat een geheime deur op een kier. Blijkbaar is de baas van de Redbrands ontsnapt! Jullie vinden nog wel een brief geadresseerd aan Iarno Albrek, ondertekent met het logo van een zwarte spin.
 
+'s Avond gaan jullie naar Mirna's boerderij, en slapen daar lekker. 
+
+### 5
+De gevonden loot wordt verkocht bij de Lionshield Coster, en jullie vertrekken naar de Cragmaw Hideout met een lege kar. Droop wordt achtergelaten met de kar, en jullie vallen de grot aan; een patrouille van Goblins en wolven wordt gedood, en binnen in de grot worden Yeemik en zijn bende van Goblins gedood (minus de laatste Goblin die zich overgeeft).
+
+De kratten in de grot worden op de kar geladen, en jullie brengen de nacht door in de grot, met Droop.
+
+### 6
+Op de weg terug naar Phandalin worden jullie aangevallen door twee Kobolds die snel worden overmeesterd. Jullie vinden een Bag of Holding op het lichaam van een van de Kobolds.
+
+Terug in Phandalin brengen jullie de kar terug naar de Lionshield Coster en worden betaald.
+
+### 9
+Het studded leather armor dat Shardon heeft besteld zal klaar zijn.
+
 ### 31
 Midsummer
