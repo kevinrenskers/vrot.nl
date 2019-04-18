@@ -53,13 +53,18 @@ De gevonden loot wordt verkocht bij de Lionshield Coster, en jullie vertrekken n
 
 De kratten in de grot worden op de kar geladen, en jullie brengen de nacht door in de grot, met Droop.
 
-### **6**
+### 6
 Op de weg terug naar Phandalin worden jullie aangevallen door twee Kobolds die snel worden overmeesterd. Jullie vinden een Bag of Holding op het lichaam van een van de Kobolds.
 
-Terug in Phandalin brengen jullie de kar terug naar de Lionshield Coster en worden betaald.
+Terug in Phandalin brengen jullie de kar terug naar de Lionshield Coster en worden betaald. Jullie brengen de nacht door bij Mirna, die jullie over de druïde Reidoth verteld. Hij kent dit gebied als zijn broekzak dus weet vast wel waar dat kasteel is. Reidoth is te vinden in Thundertree, waarvan Thervan weet dat er een draak zit.
 
-### 9
-Het studded leather armor dat Shardon heeft besteld zal klaar zijn.
+### 7
+Jullie brengen de dag door in Phandalin en praten met verschillende mensen: zuster Garaele verkoopt jullie holy water, jullie bezoeken de townmaster en Sildar (die jullie vraagt om Iarno levend terug te brengen), en jullie praten met de gepensioneerde avonturier Daran die jullie over Old Owl Well verteld. Daar zouden undeads zitten en een "old watchtower of an ancient magical empire". 
+
+### **8**
+Er is besloten om Mirna te helpen op haar boerderij, terwijl jullie wachten op het nieuwe pantser van Shardon. Droop moet verteld worden dat het NIET okay is om kippen te doden (Mirna wordt betaald voor twee kippen). In de middag wordt jullie verteld dat het pantser klaar is, deze wordt opgehaald en jullie gaan op pad richting Old Owl Well / Wyvern Tor.
+
+Tijdens de nacht worden jullie al direct bij de eerste wacht aangevallen door een grote groep goblins en wolven. Het was een moeilijk gevecht, maar jullie weten de overwinning te pakken. Helaas zonder gevangenen nadat de laatste (reeds gevangen) goblin door Tippletoe wordt gedood met een magic missile.
 
 ### 31
 Midsummer
