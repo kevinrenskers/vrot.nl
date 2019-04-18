@@ -64,7 +64,7 @@ Jullie brengen de dag door in Phandalin en praten met verschillende mensen: zust
 ### **8**
 Er is besloten om Mirna te helpen op haar boerderij, terwijl jullie wachten op het nieuwe pantser van Shardon. Droop moet verteld worden dat het NIET okay is om kippen te doden (Mirna wordt betaald voor twee kippen). In de middag wordt jullie verteld dat het pantser klaar is, deze wordt opgehaald en jullie gaan op pad richting Old Owl Well / Wyvern Tor.
 
-Tijdens de nacht worden jullie al direct bij de eerste wacht aangevallen door een grote groep goblins en wolven. Het was een moeilijk gevecht, maar jullie weten de overwinning te pakken. Helaas zonder gevangenen nadat de laatste (reeds gevangen) goblin door Tippletoe wordt gedood met een magic missile.
+Tijdens de nacht worden jullie al direct bij de eerste wacht aangevallen door een grote groep goblins en wolven. Het was een moeilijk gevecht, maar jullie weten de overwinning te pakken. Helaas zonder gevangenen nadat de laatste (reeds gevangen) goblin door Tippletoe wordt gedood met een magic missile. Droop krijgt betere wapens van jullie, zodat hij in de toekomst hopelijk beter mee kan vechten.
 
 ### 31
 Midsummer
