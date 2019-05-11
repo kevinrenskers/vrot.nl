@@ -61,10 +61,26 @@ Terug in Phandalin brengen jullie de kar terug naar de Lionshield Coster en word
 ### 7
 Jullie brengen de dag door in Phandalin en praten met verschillende mensen: zuster Garaele verkoopt jullie holy water, jullie bezoeken de townmaster en Sildar (die jullie vraagt om Iarno levend terug te brengen), en jullie praten met de gepensioneerde avonturier Daran die jullie over Old Owl Well verteld. Daar zouden undeads zitten en een "old watchtower of an ancient magical empire". 
 
-### **8**
+### 8
 Er is besloten om Mirna te helpen op haar boerderij, terwijl jullie wachten op het nieuwe pantser van Shardon. Droop moet verteld worden dat het NIET okay is om kippen te doden (Mirna wordt betaald voor twee kippen). In de middag wordt jullie verteld dat het pantser klaar is, deze wordt opgehaald en jullie gaan op pad richting Old Owl Well / Wyvern Tor.
 
 Tijdens de nacht worden jullie al direct bij de eerste wacht aangevallen door een grote groep goblins en wolven. Het was een moeilijk gevecht, maar jullie weten de overwinning te pakken. Helaas zonder gevangenen nadat de laatste (reeds gevangen) goblin door Tippletoe wordt gedood met een magic missile. Droop krijgt betere wapens van jullie, zodat hij in de toekomst hopelijk beter mee kan vechten.
+
+### 9
+Jullie zetten de reis voort naar Old Owl Well, waar jullie aankomen bij een ruïne van een oude wachttoren, en een grote kleurige tent. Zodra jullie dichtbij de tent komen, komen er zombies uit de wachttoren jullie kant op geschuifeld, Aelin schiet er een magic missile op af, en een boze wizard komt uit de tent, "wat moet dat daar" roepend. Echter zodra jullie hem aanspraken houdt hij de zombies op een afstand en gaat met jullie in gesprek.
+
+De wizard, Kost, geeft aan dat hij op zoek is naar schatten en voor de rest niemand lastig valt. De zombies vallen alleen indringers aan. Hij verteld ook dat hij bang is binnenkort aangevallen te zullen worden door een groep Orcs uit het zuiden, Wyvern Tor.
+
+De nacht wordt bij Kost en de zombies doorgebracht.
+
+### 10
+De volgende dag gaan jullie naar Wyvern Tor, en na een heftig gevecht zijn alle Orcs en de Ogre verslagen. Jullie gaan terug naar Kost om daar wederom de nacht door te brengen.
+
+### 11
+Onderweg naar Phandalin.
+
+### **12**
+Jullie komen weer aan in Phandalin, brengen verslag uit bij de Townmaster en bij Daran. Droop krijgt een deel van de buit en de beloning.
 
 ### 31
 Midsummer
