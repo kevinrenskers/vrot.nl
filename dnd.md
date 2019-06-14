@@ -83,10 +83,10 @@ Onderweg naar Phandalin.
 Jullie komen weer aan in Phandalin, brengen verslag uit bij de Townmaster en bij Daran. Droop krijgt een deel van de buit en de beloning. De nacht wordt weer bij Mirna doorgebracht.
 
 ### 13
-Reizen richting Thundertree
+In de ochtend vertrekken jullie naar Thundertree.
 
 ### 14
-Reizen richting Thundertree
+Reizen richting Thundertree.
 
 ### 15
 Vlakbij Neverwinter is er een barricade over de weg, met twee "town guards" die om tol vragen. Aelin probeert onzichtbaar naar een ernaast geleden huisje te sneaker maar wordt toch opgemerkt door de wachters. Er volgt een gevecht waarbij de twee wachters worden gedood. In de loot zit een vreemde koude munt met een onbekend symbool.
@@ -104,10 +104,7 @@ Achtervolging naar Ardeep Forest
 ### 18
 Achtervolging naar Ardeep Forest
 
-### 19
-Achtervolging naar Ardeep Forest
-
-### **20**
+### **19**
 De groep (minus Tippletoe) komt in de middag aan bij de rand van de Ardeep Forest. Sporen worden gevonden en gevolgd naar een open plek in het bos. Daar is een klein dorp met meerdere hutten rond een centraal kampvuur. Daar zitten 10 gnomes, en in een hut is commotie te horen. Er wordt een plan gesmeed om Tippletoe te bevrijden...
 
 ### 31
