@@ -82,7 +82,10 @@ Onderweg naar Phandalin.
 ### 12
 Jullie komen weer aan in Phandalin, brengen verslag uit bij de Townmaster en bij Daran. Droop krijgt een deel van de buit en de beloning. De nacht wordt weer bij Mirna doorgebracht.
 
-### 13, 14
+### 13
+Reizen richting Thundertree
+
+### 14
 Reizen richting Thundertree
 
 ### 15
@@ -95,11 +98,17 @@ Terug in de inn en iedereen slaapt heerlijk. Tippletoe wordt wakker doordat een 
 ### 16
 De volgende ochtend ontdekt de rest van de groep dat Tippletoe mist, als ze niet bij het ontbijt verschijnt. Er worden paarden gekocht en de achtervolging richting de Ardeep Forest wordt ingezet.
 
-### 17, 18, 19
+### 17
+Achtervolging naar Ardeep Forest
+
+### 18
+Achtervolging naar Ardeep Forest
+
+### 19
 Achtervolging naar Ardeep Forest
 
 ### **20**
-De groep (minus Tippletoe) komt aan bij de rand van de Ardeep Forest. Sporen worden gevonden en gevolgd naar een open plek in het bos. Daar is een klein dorp met meerdere hutten rond een centraal kampvuur. Daar zitten 10 gnomes, en in een hut is commotie te horen. Er wordt een plan gesmeed om Tippletoe te bevrijden...
+De groep (minus Tippletoe) komt in de middag aan bij de rand van de Ardeep Forest. Sporen worden gevonden en gevolgd naar een open plek in het bos. Daar is een klein dorp met meerdere hutten rond een centraal kampvuur. Daar zitten 10 gnomes, en in een hut is commotie te horen. Er wordt een plan gesmeed om Tippletoe te bevrijden...
 
 ### 31
 Midsummer
