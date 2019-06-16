@@ -89,11 +89,11 @@ In de ochtend vertrekken jullie naar Thundertree.
 Reizen richting Thundertree.
 
 ### 15
-Vlakbij Neverwinter is er een barricade over de weg, met twee "town guards" die om tol vragen. Aelin probeert onzichtbaar naar een ernaast geleden huisje te sneaker maar wordt toch opgemerkt door de wachters. Er volgt een gevecht waarbij de twee wachters worden gedood. In de loot zit een vreemde koude munt met een onbekend symbool.
+Vlakbij Neverwinter is er een barricade over de weg, met twee "town guards" die om tol vragen. Aelin probeert onzichtbaar naar een ernaast geleden huisje te sneaken maar wordt toch opgemerkt door de wachters. Er volgt een gevecht waarbij de twee wachters worden gedood. In de loot zit een vreemde koude zilveren munt met een onbekend symbool.
 
-De groep gaat door naar Neverwinter, vertelt de wacht aldaar wat ze hebben gevonden, dumpen Droop in een inn en gaan zelf naar een hoerenhuis. Aldaar is Thervan zo'n charmeur dat de dame van plezier hem gratis de hele nacht bezig houdt.
+De groep gaat door naar Neverwinter, vertelt de wacht aldaar wat ze hebben gevonden, dumpen Droop in een inn (de innkeeper wordt door Tippletoe omgekocht met 40 gp om een goblin binnen te laten) en gaan zelf naar een hoerenhuis. Aldaar is Thervan zo'n charmeur dat de dame van plezier hem gratis de hele nacht bezig houdt.
 
-Terug in de inn en iedereen slaapt heerlijk. Tippletoe wordt wakker doordat een hand op haar mond wordt gelegd, ze kan niet meer om hulp schreeuwen, en ze wordt ontvoert.
+Terug in de inn en iedereen slaapt heerlijk. Tippletoe wordt wakker doordat een hand op haar mond wordt gelegd, ze kan niet meer om hulp schreeuwen, en ze wordt ontvoert door haar neef, vader en clan shaman.
 
 ### 16
 De volgende ochtend ontdekt de rest van de groep dat Tippletoe mist, als ze niet bij het ontbijt verschijnt. Er worden paarden gekocht en de achtervolging richting de Ardeep Forest wordt ingezet.
