@@ -42,7 +42,7 @@ Na veel gezoek vinden jullie een geheime deur naar een ander onderdeel van de ke
 
 Onder een van de bruggen ligt een kist met daarin een magisch zwaard.
 
-Jullie bevrijden een arme goblin genaamd Droop die gepest wordt door 3 bugbears. De eerste 2 bugbears gaan snel dood, de 3e geeft zich over, en Droop biedt prompt zijn hulp aan. Jullie nemen hem mee.
+Jullie bevrijden een arme goblin genaamd Droop die gepest wordt door 3 bugbears. De eerste 2 bugbears gaan snel dood, de 3e geeft zich over, en Droop biedt direct en enthousiast zijn hulp aan. Jullie nemen hem mee.
 
 Er wordt nog een wizard laboratorium gevonden waar iemand potions aan het brouwen was, en in de slaapkamer staat een geheime deur op een kier. Blijkbaar is de baas van de Redbrands ontsnapt! Jullie vinden nog wel een brief geadresseerd aan Iarno Albrek, ondertekent met het logo van een zwarte spin.
 
