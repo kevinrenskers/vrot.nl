@@ -106,6 +106,8 @@ Terug naar de kroeg en onderweg komen jullie een zieke man tegen op een paard. J
 
 's Avonds wilt Thervan het hoertje van de vorige avond weer opzoeken, maar die blijkt ontslag genomen te hebben maar heeft wel een liefdesbrief naar Thervan gestuurd, met een rode roos.
 
+### **17**
+
 De volgende ochtend gaan de drie terug naar Jean Claude, die daar zonder magiër, maar met een bullshit verhaal, staat te wachten. Hij wordt uiteindelijk toch overtuigt (met een zak geld in gedachten) om zijn compagnon op te halen, die ze een test willen geven. Thervan neemt de wizard mee terug naar Tony, en vertelt een ongeloofwaardig verhaal dat hij Tony iets schuldigs is en daarom de golems wilt repareren. Als de magiër aangeeft er niets van te geloven worden de kaarten op tafel gelegd: geef toe dat je de golems hebt gesaboteerd, ga getuigen tegen Jean Claude, en krijg 100 goudstukken. Hij neemt de deal aan, moet bij de stadswacht zelf een boete van 50 goud betalen, maar zal dan in ruil voor zijn getuigenis wel een vrij man blijven. Thervan, Shardon en Droop gaan met 4 wachters naar Jean Claude toe, die direct doorheeft dat hij zich hier niet uit kan praten of vechten en geeft zich over. 
 
 Tony is heel erg dankbaar en betaald de beloofde 250 goudstukken.
