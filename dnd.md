@@ -96,16 +96,19 @@ De groep gaat door naar Neverwinter, vertelt de wacht aldaar wat ze hebben gevon
 Terug in de herberg en iedereen slaapt heerlijk. Tippletoe wordt wakker doordat een hand op haar mond wordt gelegd, ze kan niet meer om hulp schreeuwen, en ze wordt ontvoert door haar neef, vader en clan shaman.
 
 ### 16
-De volgende ochtend ontdekt de rest van de groep dat Tippletoe mist, als ze niet bij het ontbijt verschijnt. Er worden paarden gekocht en de achtervolging richting de Ardeep Forest wordt ingezet.
+De volgende ochtend zitten Shardon en Thervan aan het ontbijt als Aelin bleekjes naar beneden komt, een paar happen eet, om zich daarna te verontschuldigen en weer naar boven gaat, terug naar bed. Tippletoe komt helemaal niet naar beneden, maar als de jongens bij haar kamer gaan kijken hangt daar een briefje "Running errands, see you later".
 
-### 17
-Achtervolging naar Ardeep Forest
+Droop wilt graag door de stad lopen zonder dat mensen hem aanstaren of zelfs aanvallen en vraagt Thervan en Shardon om vermomming voor hem te kopen. De twee gaan op weg naar de lokale kringloopwinkel (onderweg wordt Thervan nog beschuldigt van het stelen van een diamand, maar dat kwam allemaal weer goed). Er worden kleren en een sjaal voor Droop gekocht, en op de terugweg naar de herberg is er een hoop lawaai te horen vanuit een gebouw waar ze net langslopen. Op het uithangbord staat "Fencing School The Master of Duels". Er wordt een raam gebroken en een man valt vanuit de eerste verdieping naar beneden, een stel kinderen vlucht vanuit de voordeur naar buiten, en twee lopende harnassen (golems) komen naar buiten, "HAVE AT THEE, SIR!" en "TALLY HO!" roepend, waarna ze de man (Tony Brandazza) aanvallen. Shardon en Thervan helpen de al zwaargewonde man met het gevecht tegen de golems, die hun daarna vraagt om uit te vogelen wie achter de sabotage zit, voor een beloning van 250 goudstukken. Al redelijk snel wordt een concurrent (Jean Claude Chateau van Fencing School "En Guarde!") verdacht, en het onderzoek wordt gestart.
 
-### 18
-Achtervolging naar Ardeep Forest
+Droop wordt opgehaald, en de drie begeven zich naar Jean Claude. Thervan doet het woord, Droop doet zich voor als het zoontje van Thervan, en het verhaal is dat ze Jean Claude willen inhuren om Droop ("Boris") een zomer lang te trainen in fencing én magie, en of Jean Claude misschien een magiër kent? Dat lijkt inderdaad zo te zijn. Jullie worden geacht de volgende ochtend terug te komen om te horen of de magiër behoefte heeft om een zomer les te geven.
 
-### **19**
-De groep (minus Tippletoe) komt in de middag aan bij de rand van de Ardeep Forest. Sporen worden gevonden en gevolgd naar een open plek in het bos. Daar is een klein dorp met meerdere hutten rond een centraal kampvuur. Daar zitten 10 gnomes, en in een hut is commotie te horen. Er wordt een plan gesmeed om Tippletoe te bevrijden...
+Terug naar de kroeg en onderweg komen jullie een zieke man tegen op een paard. Jullie halen een priester op, helpen de zieke man van zijn paard en vervolgen jullie weg. (Helaas is iedereen wel geïnfecteerd, maar dat weten jullie nog niet.)
+
+'s Avonds wilt Thervan het hoertje van de vorige avond weer opzoeken, maar die blijkt ontslag genomen te hebben maar heeft wel een liefdesbrief naar Thervan gestuurd, met een rode roos.
+
+De volgende ochtend gaan de drie terug naar Jean Claude, die daar zonder magiër, maar met een bullshit verhaal, staat te wachten. Hij wordt uiteindelijk toch overtuigt (met een zak geld in gedachten) om zijn compagnon op te halen, die ze een test willen geven. Thervan neemt de wizard mee terug naar Tony, en vertelt een ongeloofwaardig verhaal dat hij Tony iets schuldigs is en daarom de golems wilt repareren. Als de magiër aangeeft er niets van te geloven worden de kaarten op tafel gelegd: geef toe dat je de golems hebt gesaboteerd, ga getuigen tegen Jean Claude, en krijg 100 goudstukken. Hij neemt de deal aan, moet bij de stadswacht zelf een boete van 50 goud betalen, maar zal dan in ruil voor zijn getuigenis wel een vrij man blijven. Thervan, Shardon en Droop gaan met 4 wachters naar Jean Claude toe, die direct doorheeft dat hij zich hier niet uit kan praten of vechten en geeft zich over. 
+
+Tony is heel erg dankbaar en betaald de beloofde 250 goudstukken.
 
 ### 31
 Midsummer
