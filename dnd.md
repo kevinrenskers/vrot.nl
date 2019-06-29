@@ -102,7 +102,7 @@ Droop wilt graag door de stad lopen zonder dat mensen hem aanstaren of zelfs aan
 
 Droop wordt opgehaald, en de drie begeven zich naar Jean Claude. Zijn school lijkt op het randje van faillissement te zijn; sinds Tony zijn school heeft geopend heeft Jean Claude bijna geen studenten meer. Thervan doet het woord, Droop doet zich voor als het zoontje van Thervan, en het verhaal is dat ze Jean Claude willen inhuren om Droop ("Boris") een zomer lang te trainen in fencing én magie, en of Jean Claude misschien een magiër kent? Dat lijkt inderdaad zo te zijn. Jullie worden geacht de volgende ochtend terug te komen om te horen of de magiër behoefte heeft om een zomer les te geven.
 
-Terug naar de kroeg en onderweg komen jullie een zieke man tegen op een paard. Jullie halen een priester op, helpen de zieke man van zijn paard en vervolgen jullie weg. (Helaas is iedereen wel geïnfecteerd, maar dat weten jullie nog niet.)
+Terug naar de kroeg en onderweg komen jullie een zieke man tegen op een paard. Jullie halen een priester op, helpen de zieke man van zijn paard en vervolgen jullie weg.
 
 's Avonds wilt Thervan het hoertje van de vorige avond weer opzoeken, maar die blijkt ontslag genomen te hebben maar heeft wel een liefdesbrief naar Thervan gestuurd, met een rode roos.
 
