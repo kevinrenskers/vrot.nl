@@ -106,10 +106,27 @@ Terug naar de kroeg en onderweg komen jullie een zieke man tegen op een paard. J
 
 's Avonds wilt Thervan het hoertje van de vorige avond weer opzoeken, maar die blijkt ontslag genomen te hebben maar heeft wel een liefdesbrief naar Thervan gestuurd, met een rode roos.
 
-### **17**
+### 17
 De volgende ochtend gaan de drie terug naar Jean Claude, die daar zonder magiër, maar met een bullshit verhaal, staat te wachten. Hij wordt uiteindelijk toch overtuigt (met een zak geld in gedachten) om zijn compagnon op te halen, die ze een test willen geven. Thervan neemt de wizard mee terug naar Tony, en vertelt een ongeloofwaardig verhaal dat hij Tony iets schuldigs is en daarom de golems wilt repareren. Als de magiër aangeeft er niets van te geloven worden de kaarten op tafel gelegd: geef toe dat je de golems hebt gesaboteerd, ga getuigen tegen Jean Claude, en krijg 100 goudstukken. Hij neemt de deal aan, moet bij de stadswacht zelf een boete van 50 goud betalen, maar zal dan in ruil voor zijn getuigenis wel een vrij man blijven. Thervan, Shardon en Droop gaan met 4 wachters naar Jean Claude toe, die direct doorheeft dat hij zich hier niet uit kan praten of vechten en geeft zich over. 
 
 Tony is heel erg dankbaar en betaalt de beloofde 250 goudstukken.
+
+Terug in de herberg komt is Aelin weer uit bed en komt de groep er achter dat Tippletoe nog steeds mist. Haar kamer wordt onderzocht, en de achtervolging ingezet.
+
+### 18
+Achtervolging van Tippletoe.
+
+### 19
+Achtervolging van Tippletoe.
+
+### **20**
+Aan de rand van de Ardeep Forest lopen jullie langs een meertje waarin meerdere Giant Frogs worden gezien in het water. Deze verassen jullie dus niet, als ze uit het water springen en jullie aanvallen. Eén van de kikkers probeert Droop in te slikken maar wordt voordat dat lukt gedood. De rest van de kikkers worden ook snel gedood, no big deal.
+
+Twee uur later komen jullie bij een open plek in het bos waar jullie meerdere stemmen horen. De volledige groep sneakt naar voren, waar jullie 7 gebouwen zien rond een groot kampvuur waar meerdere vrouwelijke Gnomes omheen zitten. Twee mannelijke Gnomes zijn bezig om een hakblok en bijl klaar te maken. Jullie horen Tippletoe om haar vader schreeuwen. Helaas worden jullie gezien door twee van de Gnomes die jullie aanspreken en duidelijk maken dat jullie niet welkom zijn. Als één van de mannelijke Gnomes zijn zwaard trekt om jullie te intimideren, wordt prompt de aanval ingezet door Aelin.
+
+Het gevecht verloopt niet geheel vlekkeloos (zowel Aelin als Thervan gaan bewusteloos maar worden gered door Shardon, meerdere pogingen van beide kanten om te praten of zelfs over te geven mislukken), maar uiteindelijk pakken jullie de overwinning op de 4 mannelijke Gnomes, de paar vrouwelijke Gnomes die nog meevechten, Erkenwald (vader van Tippletoe) en Xoros (de shaman). Als Erkenwald neer gaat wordt hij nog gered. Twee andere vrouwelijke Gnomes overleven het gevecht, de rest van de vijanden zijn dood.
+
+Terwijl Tippletoe, Shardon en Thervan bekvechten over het lot van de 3 gevangenen gaat Aelin alleen op zoek door de hutten. In de hut van Erkenwald stapt ze op een vloerkleed dat tot leven komt, haar omwikkelt en dood knijpt. De drie anderen blijven druk aan het discussiëren over het lot van Erkenwald en de twee vrouwen, en hebben niets door...
 
 ### 31
 Midsummer
