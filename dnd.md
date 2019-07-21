@@ -111,7 +111,7 @@ De volgende ochtend gaan de drie terug naar Jean Claude, die daar zonder magiër
 
 Tony is heel erg dankbaar en betaalt de beloofde 250 goudstukken.
 
-Terug in de herberg komt is Aelin weer uit bed en komt de groep er achter dat Tippletoe nog steeds mist. Haar kamer wordt onderzocht, en de achtervolging ingezet.
+Terug in de herberg komt is Aelin weer uit bed en komt de groep erachter dat Tippletoe nog steeds mist. Haar kamer wordt onderzocht, en de achtervolging ingezet.
 
 ### 18
 Achtervolging van Tippletoe.
