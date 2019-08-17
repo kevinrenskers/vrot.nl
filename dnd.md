@@ -130,21 +130,21 @@ Terwijl Tippletoe, Shardon en Thervan bekvechten over het lot van de 3 gevangene
 
 Erkenwald lijkt Shardon te herkennen en biedt aan informatie te geven in ruil voor zijn vrijheid. Dit wordt beloofd, en hij verteld dat clan Walnir door een persoon is ingehuurd om clan Luckwell te vinden. Dat is gelukt, en de locatie is doorgegeven aan de opdrachtgever. Erkenwald heeft geen naam van de opdrachtgever.
 
-Uiteindelijk beseft te groep dat Aelin verdwenen is, en na een korte zoektocht komen ze haar verwrongen lijk tegen. Dit lijk wordt in de bag of holding gedaan, en alle tenten en blokhutten worden in de fik gestoken.
+Uiteindelijk beseft de groep dat Aelin verdwenen is, en na een korte zoektocht komen ze haar verwrongen lijk tegen. Dit lijk wordt in de bag of holding gedaan, en alle tenten en blokhutten worden in de fik gestoken (zonder ze verder nog te onderzoeken).
 
 ### 21
 Terug naar Neverwinter.
 
 ### 22
-Aankomst Neverwinter, de groep gaat naar priester Bjornsson om hulp te vragen bij het terug tot leven brengen van Aelin. Na een betaling van 750 gp wordt het ritueel gestart; dit is succesvol en Aelin komt weer terug tot leven. 's Avonds wordt dit gevierd met een biertje, en midden in de nacht is Droop een beetje hands-on met de slapende Tippletoe, die hem een flinke klap in zijn gezicht geeft.
+Aankomst Neverwinter, en de groep gaat direct naar priester Bjornsson om hulp te vragen bij het terug tot leven brengen van Aelin. Na een betaling van 750 goudstukken wordt het ritueel gestart; dit is succesvol en Aelin komt weer terug tot leven. 's Avonds wordt dit gevierd met een biertje, en midden in de nacht is Droop een beetje hands-on met de slapende Tippletoe, die hem een flinke klap in zijn gezicht geeft.
 
 ### 23
-Tippletoe koopt een hooded cloak en gaat in de Leaking Tap zitten - de kroeg waar haar clan vaak opdrachten kreeg. Na een aantal uren gewacht te hebben komt er een half-elf bij haar aan tafel zitten, geeft haar een briefje, en vertrekt weer. Op het briefje staat dat "Manshoon" clan Walnir wilt inhuren om een groepje avonturiers in Phandalin in de gaten te houden. Shardon herkent deze naam: in zijn clan werden verhalen verteld over de boogyman Manshoon die kinderen opeet als ze niet naar hun moeder luisteren. In de bibliotheek vinden ze informatie over Manshoon: dit was een van de oprichters van de Zhentarim en is ruim 100 jaar geleden gedood door avonturiers.
+Tippletoe koopt een hooded cloak en gaat in de Leaking Tap zitten - de kroeg waar haar clan vaak opdrachten kreeg. Na een aantal uren gewacht te hebben komt er een half-elf bij haar aan tafel zitten, geeft haar een briefje, en vertrekt weer. Op het briefje staat dat ene "Manshoon" clan Walnir wilt inhuren om een groepje avonturiers in Phandalin in de gaten te houden. Shardon herkent deze naam: in zijn clan werden verhalen verteld over de boogyman Manshoon die kinderen opeet als ze niet naar hun moeder luisteren. In de bibliotheek vinden ze informatie over Manshoon: dit was een van de oprichters van de Zhentarim factie en is ruim 100 jaar geleden gedood door avonturiers.
 
 Thervan brengt de nacht door bij Chantal, de inmiddels ex-hoer.
 
 ### **24**
-Jullie vertrekken vroeg in de morgen richting Thundertree, waar jullie 's avonds aankomen. Twee ruïnes worden onderzocht, er wordt geknokt met een groepje ash-zombies.
+Jullie vertrekken vroeg in de morgen richting Thundertree om met de druïde Reidoth te praten over de locatie van het goblin kasteel, waar jullie 's avonds aankomen. Twee ruïnes worden onderzocht, er wordt geknokt met een groepje ash-zombies.
 
 ### 31
 Midsummer
