@@ -119,7 +119,7 @@ Achtervolging van Tippletoe.
 ### 19
 Achtervolging van Tippletoe.
 
-### **20**
+### 20
 Aan de rand van de Ardeep Forest lopen jullie langs een meertje waarin meerdere Giant Frogs worden gezien in het water. Deze verassen jullie dus niet, als ze uit het water springen en jullie aanvallen. Eén van de kikkers probeert Droop in te slikken maar wordt voordat dat lukt gedood. De rest van de kikkers worden ook snel gedood, no big deal.
 
 Twee uur later komen jullie bij een open plek in het bos waar jullie meerdere stemmen horen. De volledige groep sneakt naar voren, waar jullie 7 gebouwen zien rond een groot kampvuur waar meerdere vrouwelijke Gnomes omheen zitten. Twee mannelijke Gnomes zijn bezig om een hakblok en bijl klaar te maken. Jullie horen Tippletoe om haar vader schreeuwen. Helaas worden jullie gezien door twee van de Gnomes die jullie aanspreken en duidelijk maken dat jullie niet welkom zijn. Als één van de mannelijke Gnomes zijn zwaard trekt om jullie te intimideren, wordt prompt de aanval ingezet door Aelin.
@@ -127,6 +127,24 @@ Twee uur later komen jullie bij een open plek in het bos waar jullie meerdere st
 Het gevecht verloopt niet geheel vlekkeloos (zowel Aelin als Thervan gaan bewusteloos maar worden gered door Shardon, meerdere pogingen van beide kanten om te praten of zelfs over te geven mislukken), maar uiteindelijk pakken jullie de overwinning op de 4 mannelijke Gnomes, de paar vrouwelijke Gnomes die nog meevechten, Erkenwald (vader van Tippletoe) en Xoros (de shaman). Als Erkenwald neer gaat wordt hij nog gered. Twee andere vrouwelijke Gnomes overleven het gevecht, de rest van de vijanden zijn dood.
 
 Terwijl Tippletoe, Shardon en Thervan bekvechten over het lot van de 3 gevangenen gaat Aelin alleen op zoek door de hutten. In de hut van Erkenwald stapt ze op een vloerkleed dat tot leven komt, haar omwikkelt en dood knijpt. De drie anderen blijven druk aan het discussiëren over het lot van Erkenwald en de twee vrouwen, en hebben niets door...
+
+Erkenwald lijkt Shardon te herkennen en biedt aan informatie te geven in ruil voor zijn vrijheid. Dit wordt beloofd, en hij verteld dat clan Walnir door een persoon is ingehuurd om clan Luckwell te vinden. Dat is gelukt, en de locatie is doorgegeven aan de opdrachtgever. Erkenwald heeft geen naam van de opdrachtgever.
+
+Uiteindelijk beseft te groep dat Aelin verdwenen is, en na een korte zoektocht komen ze haar verwrongen lijk tegen. Dit lijk wordt in de bag of holding gedaan, en alle tenten en blokhutten worden in de fik gestoken.
+
+## 21
+Terug naar Neverwinter.
+
+## 22
+Aankomst Neverwinter, de groep gaat naar priester Bjornsson om hulp te vragen bij het terug tot leven brengen van Aelin. Na een betaling van 750 gp wordt het ritueel gestart; dit is succesvol en Aelin komt weer terug tot leven. 's Avonds wordt dit gevierd met een biertje, en midden in de nacht is Droop een beetje hands-on met de slapende Tippletoe, die hem een flinke klap in zijn gezicht geeft.
+
+## 23
+Tippletoe koopt een hooded cloak en gaat in de Leaking Tap zitten - de kroeg waar haar clan vaak opdrachten kreeg. Na een aantal uren gewacht te hebben komt er een half-elf bij haar aan tafel zitten, geeft haar een briefje, en vertrekt weer. Op het briefje staat dat "Manshoon" clan Walnir wilt inhuren om een groepje avonturiers in Phandalin in de gaten te houden. Shardon herkent deze naam: in zijn clan werden verhalen verteld over de boogyman Manshoon die kinderen opeet als ze niet naar hun moeder luisteren. In de bibliotheek vinden ze informatie over Manshoon: dit was een van de oprichters van de Zhentarim en is ruim 100 jaar geleden gedood door avonturiers.
+
+Thervan brengt de nacht door bij Chantal, de inmiddels ex-hoer.
+
+## **24**
+Jullie vertrekken vroeg in de morgen richting Thundertree, waar jullie 's avonds aankomen. Twee ruïnes worden onderzocht, er wordt geknokt met een groepje ash-zombies.
 
 ### 31
 Midsummer
