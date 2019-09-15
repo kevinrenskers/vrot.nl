@@ -143,8 +143,22 @@ Tippletoe koopt een hooded cloak en gaat in de Leaking Tap zitten - de kroeg waa
 
 Thervan brengt de nacht door bij Chantal, de inmiddels ex-hoer.
 
-### **24**
-Jullie vertrekken vroeg in de morgen richting Thundertree om met de druïde Reidoth te praten over de locatie van het goblin kasteel, waar jullie 's avonds aankomen. Twee ruïnes worden onderzocht, er wordt geknokt met een groepje ash-zombies.
+### 24
+Jullie vertrekken vroeg in de morgen richting Thundertree om met de druïde Reidoth te praten over de locatie van het goblin kasteel, waar jullie 's avonds aankomen. Drie ruïnes worden onderzocht, er wordt geknokt met een groepje ash-zombies en vreemde boom-wezens. Bij het vierde huis komen jullie Reidoth tegen, die de locatie van Cragmaw Castle geeft, en zegt te willen helpen als jullie in de toekomst de groene draak in Thundertree willen aanvallen.
+
+De nacht wordt bij de druïde doorgebracht.
+
+### 25
+De volgende ochtend gaan jullie op zoek naar het family heirloom van Mirna, en worden onderweg aangevallen door twee joekels van spinnen. Daarna gaan jullie naar Neverwinter. Thervan brengt een slapeloze nacht door bij Chantal.
+
+### 26 
+Er worden inkopen gedaan in Neverwinter, en jullie vertrekken richting Cragmaw Castle.
+
+### 27
+Reizen naar Cragmaw Castle.
+
+### **28**
+In de ochtend komen jullie bij Cragmaw Castle aan, en verkennen de omgeving. Twee van de groep worden gespot door de goblins in het kasteel, die lekker blijven zitten waar ze zitten, veilig achter de arrow slits.
 
 ### 31
 Midsummer
